@@ -1,2 +1,2 @@
-20223053 Kim Minju
+20223053  Kim  Minju
 Kookmin Univ. SW
